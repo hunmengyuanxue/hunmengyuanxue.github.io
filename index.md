@@ -8,7 +8,7 @@
 神秘天王
 星河
 <br/><a href="https://space.bilibili.com/1083432442">魂梦怨雪的b站账号</a>
-<br/><a href=">https://shequ.codemao.cn/user/798270">神秘天王的bcm账号</a
+<br/><a href=">https://shequ.codemao.cn/user/798270">神秘天王的bcm账号</a>
 ###旗下组织
   长老工作室：
   <br/><a href="https://hunmengyuanxue.github.io/zls/"><img src="https://user-images.githubusercontent.com/103264657/162600682-b34cf3c9-2837-4483-ad1c-ee200e964bbc.png"></a>
