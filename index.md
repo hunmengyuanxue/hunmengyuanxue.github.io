@@ -9,7 +9,6 @@
   <p>神秘天王</p>
   <p>星河</p>
   <br/><a href="https://space.bilibili.com/1083432442">魂梦怨雪的b站账号</a>
-  <br/><a href=">https://shequ.codemao.cn/user/798270">神秘天王的bcm账号</a>
   
 ### 旗下组织
   长老工作室：
