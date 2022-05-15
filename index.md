@@ -17,7 +17,7 @@
   <br/><a href="https://hunmengyuanxue.github.io/tianyu/"><img src="https://user-images.githubusercontent.com/103264657/162600685-608cb49f-0b8c-4c3a-b529-4a1243975652.png"></a>
 
 ### 小说作品
-#### 《神暗》系列
+#### 《神暗之义》系列
 <br/><a href="https://www.bilibili.com/read/cv15646694">点击阅读：第一章</a>
 <br/><a href="https://www.bilibili.com/read/cv15738658">点击阅读：第二章</a>
 <br/><a href="https://www.bilibili.com/read/cv15858367">点击阅读：第三章</a>
